@@ -1,0 +1,7 @@
+- 👋 Namaste, I’m @Vvini10
+- 👀 I’m interested in coding and learning new languages
+- 🌱 I’m currently learning C/C++
+- 📫 Reach me at vanshikadgg@gmail.com 
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I'm more of a lazy person than i may seem 😁
+- 🎶 P.S. Currently a Noob, so do excuse my mistakes
